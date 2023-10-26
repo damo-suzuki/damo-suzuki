@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @damo-suzuki
-- 👀 I’m interested in running fast, jumping high, throwing far.
-- 🌱 I’m currently learning how to have conversations with new people
+- 👀 I’m interested in running fast, reading slow, and .
+- 🌱 I’m currently learning how to build circuits
 - 💞️ I’m looking to collaborate on improving the well being of people who have physical pain from their jobs.
 - 📫 How to reach me damosuzukitube@gmail.com
 
